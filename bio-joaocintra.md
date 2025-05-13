@@ -1,1 +1,1 @@
-Eu sou João Victor Cintra Cruz, tenho 19 anos, gosto de video games, assistir e praticar esportes, de preferência futebol e futsal, não trabalho no momento, e o meu principal hobby é frequentar a igreja (católica) do meu bairro.
+Eu sou João Victor Cintra Cruz, tenho 19 anos, gosto de video games, assistir e praticar esportes, de preferência futebol e futsal, não trabalho no momento, e o meu principal hobby é frequentar a igreja (católica) do meu bairro.3
