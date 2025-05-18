@@ -1,2 +1,2 @@
 lua
-CopiarEditar
+ mudado por romario
