@@ -1,2 +1,2 @@
 lua 
-lua nova joaocintra
+lua velha romario
